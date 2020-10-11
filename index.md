@@ -2,6 +2,6 @@
 
 ### Contact | Kontakt
 
-In the meantime please contact me at <ideef@gmail.com> 
+In the meantime please contact me at <idefjjj@gmail.com> 
 
-Mail do kontaktu: <ideef@gmail.com>
+Mail do kontaktu: <idefjjj@gmail.com>
